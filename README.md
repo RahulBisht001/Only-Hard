@@ -1,1 +1,1 @@
-# **Only-Hard**
+# Only-Hard
